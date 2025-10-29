@@ -6,4 +6,4 @@ Actually now i m fully understand.
 
 
 # Creator
-Created By Alisha !!!
+Created by Alisha
